@@ -1,0 +1,1 @@
+<img src="https://www.jejakpiknik.com/wp-content/uploads/2017/10/tempat-terkenal-di-semarang-630x380.jpg" alt="" style="width: 1350px; opacity:0.">
